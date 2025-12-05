@@ -32,7 +32,7 @@ ok hey motherfuckers, call me any of the names above i like to interact with peo
 
 
 <p align="center">
-ponytown boundries, so like dont cover me i genuinely hate it same with booping me now i dont really mind kissing but sometimes i will move away just to let you know i dont like it, also if you do any of these on purpose i will hide and or block you.
+ponytown boundries, so like dont cover me unless i wanna be covered i genuinely hate it same with booping me now i dont really mind kissing but sometimes i will move away just to let you know i dont like it, also if you do any of these on purpose i will hide and or block you.
 <p align="center">
 DNI list! 
 -12 or 22+ sorry i dont feel comfortable, some crk fans like if i say dni then dni, the basic dni

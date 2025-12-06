@@ -7,10 +7,7 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31yis6ybj56slfofuru55xi2lz5u&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false">
   </a>
 </p>
-<br/>
-<br/>
-  <p align="center">
-⋮ 𝙢𝙖𝙩𝙩𝙝𝙚𝙬 / 𝙜𝙖𝙢𝙯𝙚𝙚 / 𝙠𝙖𝙧𝙠𝙖𝙩 / 𝙟𝙤𝙝𝙣
+
 <br/>
 <br/>
 <p align="center">

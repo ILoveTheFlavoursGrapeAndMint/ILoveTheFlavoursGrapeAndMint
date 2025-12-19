@@ -37,5 +37,5 @@ ok hey motherfuckers, call me any of the names above i like to interact with peo
 ponytown boundries, so like dont cover me unless i wanna be covered i genuinely hate it same with booping me now i dont really mind kissing but sometimes i will move away just to let you know i dont like it, also if you do any of these on purpose i will hide and or block you.
 <p align="center">
 <p align="center">
-this is a wip
+i also text people really randomly and from what ive heard ive scared someone bc of it?? all i do it "hello ****." and i love adding dots at the end of my texts sometimes so its best to ignore that, also i suck at grammar 
 

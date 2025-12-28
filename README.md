@@ -22,7 +22,7 @@ some stuff about me
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <p align="center">
-haiiii i like to interact with people esp homestuckies! although if you interact with me like once i do see you as like my new friend so uh please be aware of that , i can have a chat with you although im mostly offtab and might not respond unless you whisper me. Feel free to send friend requests if i dont accept then its because i dont like you or i get a bad feeling about you. If you end up chatting with me i can sometimes be shy or energetic depending on my mood but i promise im a nice person,heavy touch comfort please sit by me and c+h whenever you can sit by me even if i have dni in my name it genuinely brings me so much joy and comfort when someone c+h.
+haiiii i like to interact with people esp homestuckies! although if you interact with me like once i do see you as like my new friend so uh please be aware of that , i can have a chat with you although im mostly offtab and might not respond unless you whisper me. Feel free to send friend requests if i dont accept then its because i dont like you or i get a bad feeling about you. If you end up chatting with me i can sometimes be shy or energetic depending on my mood but i promise im a nice person,heavy touch comfort please sit by me and c+h whenever you can sit by me even if i have dni in my name it genuinely brings me so much comfort when someone c+h.
 
 <p align="center">
   also if you want more info about me and my dni list pls look at my strawpage

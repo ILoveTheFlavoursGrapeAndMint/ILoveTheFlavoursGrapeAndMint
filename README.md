@@ -1,5 +1,6 @@
 <p align="center">
-<img width="750" height="562" alt="image" src="https://64.media.tumblr.com/2174b5b29fa10b125bb30f7f67c62361/46ce8e91c495afc5-f4/s2048x3072/9f4151700420c630e338429aa4ea7427a2e2fbb3.pnj" />
+<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/46e494b8-3076-42ce-ac45-3bc0519e7155"
+" />
 <p align="center">
 ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
 

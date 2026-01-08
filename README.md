@@ -1,8 +1,9 @@
 <p align="center">
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/46e494b8-3076-42ce-ac45-3bc0519e7155"
-" />
+<img width="1280" height="658" alt="image" src="https://github.com/user-attachments/assets/1a8e27e6-9df1-4251-a32e-c88a014321e9"
 <p align="center">
-ꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀꕀ
+
+<img width="1280" height="195" alt="image" src="https://github.com/user-attachments/assets/aaf755c8-2bc9-4cc0-89f4-258548fbf6f7" />
+
 scroll for info!
 
 <br/>

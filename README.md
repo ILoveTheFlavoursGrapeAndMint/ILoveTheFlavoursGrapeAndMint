@@ -25,21 +25,17 @@ some stuff about me
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 
 <p align="center">
-haiiii i like to interact with people esp homestuckies and tf2 peeps! although if you interact with me like once i do see you as like my new friend so uh please be aware of that , i can have a chat with you although im mostly offtab and might not respond unless you whisper me. 
-  Feel free to send friend requests if i dont accept then its because i dont like you or i get a bad feeling about you. If you end up chatting with me i can sometimes be shy or energetic depending on my mood but i promise im a nice person.
+hi, im a very easily angered person to usually new people but i do warm up to people overtime and dont really get as angry and dry it just takes time, OHH OH PLEASE DO BE MY FRIEND THO OR TALK TO ME PLEASSEE I LOVEE TALKIN TO PEOPLE ALOTT AND MAKING FRIENDS YA. Just tell me if im annoying and i'll leave ya alone because when i talk to people i want to become friends with them. Oh im usually offtab playin tf2 or yknow reading homestuck heh so mostly w2i
   
   <p align="center">
   heavy touch comfort please sit by me and c+h whenever you can sit by me even if i have dni in my name it genuinely brings me so much comfort and makes me really happy.
 
 <p align="center">
-  also if you want more info about me and my dni list pls look at my strawpage
+ want more info about me? look at my strawpage. (maybe even leave a gimmick hehehhhhh)
 
 
 <p align="center">
-ponytown boundries, so like dont cover me unless you're a friend/on my friendslist or if i wanna be covered i genuinely hate it same with booping me now i dont really mind kissing but sometimes i will move away just to let you know i dont like it, also if you do any of these on purpose i will hide and or block you.
-<p align="center">
-<p align="center">
-i also text people really randomly and from what ive heard ive scared someone bc of it?? all i do it "hello ****." and i love adding dots at the end of my texts sometimes so its best to ignore that, also i suck at grammar 
+ponytown boundries/dni,   DO NOT COVER ME UNLESS YOU ARE SOMEONE ON MY FRIENDLIST. uhh ships dni ok unless i tell u that u can int, -13 and 20+ i dont want 12 year olds and 20 year olds talking to me ok. err like idk dont boop me to much
 
 
  <p align="center">
